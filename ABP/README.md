@@ -1,0 +1,4 @@
+2024年所有人的文件 https://drive.google.com/drive/folders/1M1PxiLf_jGTvnJlgYHc4bp0P_Gb7iUjC?usp=sharing
+## 关于该课程
+1. 讲座和实验课一定要去，可以不听。一定要全勤，最多各旷一次。成绩只参考考勤率和考试成绩（开卷）
+2. 实验文件在学期末考试前提交，统一发给俄罗斯同学。文件直接改名字就行，老头根本不看，无需多言。
